@@ -1,4 +1,5 @@
- 
+by zionterry24
+cool game plesse play this new game
 
 
 > Open this page at [https://8087501-gif.github.io/new-game/](https://8087501-gif.github.io/new-game/)
